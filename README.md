@@ -9,5 +9,7 @@ Basmati rice
 Tomato
 Briyani masala
 
+Beans 
+Masala
 
 Thank you :)
